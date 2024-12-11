@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @brianbooth-15
+- 👀 I’m interested in golf, football, coding
+- 🌱 I’m currently learning new skills to further my development
+- 💞️ I’m looking to collaborate on anything that intrests me.
+- 📫 How to reach me brianbooth915@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have done a bungee and a skydive.
